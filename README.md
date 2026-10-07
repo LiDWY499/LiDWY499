@@ -2,7 +2,7 @@
 
 Computer Science and Artificial Intelligence graduate from Queen Mary University of London, interested in software engineering and applied AI.
 
-I’m looking for graduate roles and internships in London or remote, with availability now or January–March 2027.
+I’m looking for graduate roles and internships in London or remote, with availability now.
 
 ## Featured work
 
